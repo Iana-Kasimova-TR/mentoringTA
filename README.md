@@ -1,1 +1,1 @@
-# Hello mentor! Good day! See in Sunday!
+# Hello mentor! Good day! See ya!
